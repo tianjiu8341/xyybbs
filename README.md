@@ -8,6 +8,10 @@
 
 - https://xyybbs.buzz  香约约论坛
 
+- https://xyybbs.gay  香约约论坛
+
+- https://xyybbs.wtf  香约约论坛
+
 - https://xyybbs.tk  香约约论坛
 
 - https://xyybbs.ml  香约约论坛
