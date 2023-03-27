@@ -2,9 +2,19 @@
 
 ## 永久网址发布 （加入收藏夹，永不迷路）
 
-- https://xyybbs.top
+- https://xyybbs.net  香约约论坛
+
+- https://trgbbs.xyz  唐人阁论坛
+
+- https://yplbbs.net  香约约论坛
+
+- https://qblbbs.com  曲摆楼论坛
+
+- https://qygbbs.com  群游阁论坛
+
 
 ## 备用网址
+- https://xyybbs.top  香约约论坛
 
 - https://xyybbs.buzz  香约约论坛
 
